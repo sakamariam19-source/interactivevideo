@@ -1,2 +1,2 @@
-# Interactive video Media House
-interactive content to learn Introduction to Radio and Television Production
+# Interactive Video Media House
+Interactive content to learn Introduction to Radio and Television Production
